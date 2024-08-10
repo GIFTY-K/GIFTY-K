@@ -2,7 +2,8 @@
 - 👀 I’m interested in Data analytics
 - 🌱 I’m currently learning data analysis in Dahel Techies
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me kossygift98@gmail.com
+- 📫 You can reach me on [LINKEDLN] (https://www.linkedin.com/in/okpala-kosiso-9a29241a2?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+
 - 😄 Pronouns: She
 - ⚡ Fun fact: ...
 
